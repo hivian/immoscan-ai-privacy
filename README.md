@@ -1,1 +1,0 @@
-# immoscan-ai-privacy
